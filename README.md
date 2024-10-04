@@ -11,7 +11,7 @@ joe.weber.sanders@gmail.com
  
 +1 612 500 7979
 
-[https://www.linkedin.com/in/joe-sanders-46486b298/](https://www.linkedin.com/in/joe-weber-sanders/)
+(https://www.linkedin.com/in/joe-weber-sanders/)
 
 --- 
 ### **Resume**
