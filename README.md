@@ -5,7 +5,7 @@ Bachelor of Science in Archicture
 Graduating Spring 2026
 
 ---
-averagejoezero@gmail.com
+joe.weber.sanders@gmail.com
  
 +1 612 500 7979
 
