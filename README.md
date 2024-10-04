@@ -2,6 +2,8 @@ University of Minnesota Undergraduate
 
 Bachelor of Science in Archicture
 
+Entomology Minor
+
 Graduating Spring 2026
 
 ---
